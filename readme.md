@@ -1,4 +1,11 @@
-icze4r/icze4r is a special repository: its README.md will appear on your profile!
+Hewwo! c(´•ω•｀)(◕ᴗ◕✿)
+
+I'm icze4r. Also known as TheBattleAngel, or Margaret Gel.
+
+******** SOCIAL MEDIA ********
+
+Twitter: https://twitter.com/icze4r
+TikTok: https://www.tiktok.com/@icze4r
 
 
 Fun facts:
